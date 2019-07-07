@@ -1,6 +1,6 @@
 **_Shared under a Creative Commons Attribution-NonCommercial-NoDerivs 3.0 Unported License._**
 
-###### SCOTT DUNCAN·WEDNESDAY, 21 OCTOBER 2015
+#### SCOTT DUNCAN·WEDNESDAY, 21 OCTOBER 2015
 
 " **Piece-of-Shit Christians**" - you hear me say it a lot. I say it so much, and I've been saying it for so long, that the prefix "Piece-of-Shit" is automatically inserted in front of it, each and every time I hear the word "Christian". This is much like the experience of Elliot in "Mr. Robot" with "Evil Corp". (I also find myself mentally apologizing to [Claudia Christian](https://www.facebook.com/ClaudiaChristianFanPage) every time I think of her. Shit...there I go again! Sorry Claudia. :/)
 
