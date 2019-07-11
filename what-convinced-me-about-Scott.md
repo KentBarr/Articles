@@ -50,7 +50,7 @@ If he was asked the same question months or years later, his answer was identica
 **2. He says "Trust, but VERIFY"**  
 This is obviously related to #1 above. You will waste precious time from your life wondering *if* he is right. I'm quite serious. He always is. He knows more than you and he's not lying. Accept that.
 
-So the smartest thing for you to do is to trust that what he tells you is *true*, but then *verify* it. Until you veryify for yourself, you will not understand, you'll just have memorised some words that some guy said.
+So the smartest thing for you to do is to trust that what he tells you is *true*, but then *verify* it. Until you verify for yourself, you will not understand, you'll just have memorised some words that some guy said.
 
 **3. He has nothing to sell**  
 Scott's not selling anything. At all. No newsletters, no donation box... he doesn't want your money. He doesn't even want to be your "friend" on Facebook. 
@@ -72,7 +72,7 @@ It says so very clearly, in fact it's printed on the money in your pocket right 
 
 If you use that money, you are accepting that law. No matter whatever the hell insane bullshit they decide to declare is a law, you agree to, just by using their money.
 
-You see, it's not your money. You earned it, it's in your pocket and you can spend it, but it is not yours. It is someone else's. You have to pay to use someone else's money. It is your masters' money and you must account for what you do with your masters'money.
+You see, it's not your money. You earned it, it's in your pocket and you can spend it, but it is not yours. It is someone else's. You have to pay to use someone else's money. It is your masters' money and you must account for what you do with your masters' money.
 
 To quote:
 
