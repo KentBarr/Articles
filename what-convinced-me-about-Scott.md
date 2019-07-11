@@ -68,7 +68,7 @@ Becaue you agreed to it.
 
 It says so very clearly, in fact it's printed on the money in your pocket right now. Take out any Canadian banknote, any denomination. If you look carefully you will find this printed somewhere on it:
 
-**THIS NOTE IS A TENDER FOR LAW**
+**THIS NOTE IS LEGAL TENDER**
 
 If you use that money, you are accepting that law. No matter whatever the hell insane bullshit they decide to declare is a law, you agree to, just by using their money.
 
